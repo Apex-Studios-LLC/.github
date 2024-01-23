@@ -8,7 +8,7 @@ Apex Studios, located in Buffalo, NY, is at the forefront of web design, social 
 
 **Website Design:** As a [Velo by Wix](https://wix.com/velo) certified studio, we excel in building everything from simple landing pages to complex systems, including eCommerce, automated communications, and more.
 
-**Social Media Management:** Our core expertise. We help businesses establish a powerful online presence, offering everything from strategy development to full management of social media platforms, but with a focus on local content creation and lessons. Our goal is to make your brand shine on every social channel.
+**Social Media Management:** Our core expertise. We help local, Buffalo-based businesses establish a powerful online presence, offering everything from strategy development to full management of social media platforms, but with a focus on local content creation and lessons. Our goal is to make your brand shine on every social channel.
 
 **Native Mobile App Creation:** We design and develop native mobile applications for both Android and iOS platforms, ensuring a seamless and engaging user experience.
 
